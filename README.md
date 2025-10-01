@@ -96,6 +96,6 @@ This project was a joint collarabration:
   
 If you’re interested in  contributing, or discussing ideas related to gaming market research and AI-powered analytics kindly reach out at:
 
- Email: evalynnjagi02@gmail.com, noellemburu@gmail.com, rozw@gmail.com
+ Email: evalynnjagi02@gmail.com, noellemburu@gmail.com, rosewabere7@gmail.com
 
 
